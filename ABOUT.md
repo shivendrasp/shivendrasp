@@ -1,1 +1,2 @@
-Shivendra Singh Pawar
+Shivendra Singh Pawar. 
+Currently working as Visual Designer
